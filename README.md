@@ -13,7 +13,7 @@
 - 💬 Ask me about anything
 - 📫 How to reach me: shilhora.akshay333@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: **chai over coffe**
+- ⚡ Fun fact: **chai over coffee**
 
 # Languages and Tools 
 <p align="center">
